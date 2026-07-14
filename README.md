@@ -2,7 +2,9 @@
 https://farpmanbarnyins.atabook.org/
 
 
-https://github.com/user-attachments/assets/7a1534a8-4a7b-4ca1-abde-00cfab11b82b
+https://github.com/user-attachments/assets/de4628ff-401c-43f7-9e14-d68b3c7504d3
+
+
 
 
 im a tall nonchalant 6'2 dreadhead with a deep voice and goofy laugh and black and black and white
