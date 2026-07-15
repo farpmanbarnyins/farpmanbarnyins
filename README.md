@@ -37,3 +37,7 @@ yo im no longer a dreadhead but im a 6'4 bowlcut hair boy and chalant
 
 
 im now a 8'3 faded boy that is nonchalant
+
+
+
+forgive me for torturing you with this conglomerate of poison for a github if your a spam follower or something else but if you like it im not sorry for making it
