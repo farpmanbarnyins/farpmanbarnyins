@@ -6,16 +6,6 @@ forgive me for torturing you with this conglomerate of poison for a github if yo
 
 
 
-https://github.com/user-attachments/assets/aaea19cc-9ae8-4997-9179-d40ff7d5fe8d
-
-
-
-
-
-the 3 that i tag is @Steampunked-Ghoul @Steampunked-Ghoul @farpmanbarnyins
-
-
-
 im a tall nonchalant 6'2 dreadhead with a deep voice and goofy laugh and black and black and white
 
 
